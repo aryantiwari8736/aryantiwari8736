@@ -1,4 +1,4 @@
-### Hi there 👋
+### Helo Everyone! I am Aryan 👋
 
 <!--
 **aryantiwari8736/aryantiwari8736** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
